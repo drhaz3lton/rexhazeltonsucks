@@ -1,2 +1,1 @@
-# rexhazeltonsucks
-Daniel Rex Hazelton of Annandale, Virginia
+# jordanafyne.github.io
